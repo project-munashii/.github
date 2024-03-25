@@ -1,4 +1,5 @@
-# this project does not exist. 
+# this project is now dead.
+# this project does not exist.
 this project does not exist. 
 this project does not exist. 
 this project does not exist. 
